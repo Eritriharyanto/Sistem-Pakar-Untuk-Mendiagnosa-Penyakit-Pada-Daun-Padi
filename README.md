@@ -1,0 +1,1 @@
+# Sistem-Pakar-Untuk-Mendiagnosa-Penyakit-Pada-Daun-Padi
